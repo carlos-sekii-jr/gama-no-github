@@ -1,0 +1,1 @@
+O curso tem sido excelente do ponto de vista prático e teórico até o presente momento. 
